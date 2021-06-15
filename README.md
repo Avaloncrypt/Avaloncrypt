@@ -14,3 +14,7 @@ join my discord 🔗
 ==============================
 Horizon Universe Discord
 https://discord.gg/vnExUcUc2P
+
+my email 📧
+==============================
+avalonhorizon07@gmail.com
