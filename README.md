@@ -2,19 +2,24 @@ About me 🙎‍♂️
 =============================
 Hi, my name is Akmal
 
-my school 🏫
+My school 🏫
 ==============================
 im student at MTsN 29 Jakarta
 
-my hobby 💻
+My hobby 💻
 ==============================
 im Interested to programing,robotics,Astronomy,Alogorithm,and quantum physics
 
-join my discord 🔗
+My favorite programing language
+===============================
+C++,Phyton,and Java
+
+Join my Discord 🔗
 ==============================
 Horizon Universe Discord
 https://discord.gg/vnExUcUc2P
 
-my email 📧
+My email 📧
 ==============================
 avalonhorizon07@gmail.com
+
