@@ -1,6 +1,6 @@
 About me 🤵
 =============================
-Hi, my name is Akmal
+Hi, my name is Akmal,
 im student at MTsN 29 Jakarta
 
 my hobby 💻
