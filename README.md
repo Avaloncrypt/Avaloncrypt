@@ -1,14 +1,14 @@
-About me🙎‍♂️
+About me 🙎‍♂️
 =============================
-Hi, my name is Akmal,
+Hi, my name is Akmal
 
-my school
+my school 🏫
 ==============================
 im student at MTsN 29 Jakarta
 
 my hobby 💻
 ==============================
-i Interested to programing,robotics,Astronomy,Alogorithm,math,and science
+im Interested to programing,robotics,Astronomy,Alogorithm,and quantum physics
 
 join my discord 🔗
 ==============================
