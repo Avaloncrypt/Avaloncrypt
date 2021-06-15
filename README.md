@@ -10,7 +10,7 @@ My hobby 💻
 ==============================
 im Interested to programing,robotics,Astronomy,Alogorithm,and quantum physics
 
-My favorite programing language
+My favorite programing language ⌨
 ===============================
 C++,Phyton,and Java
 
